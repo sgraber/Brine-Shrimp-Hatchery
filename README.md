@@ -23,11 +23,11 @@ For information on how to culture brine shrimp, please see the following article
 
 1. The Breeder's Net: Artemia Nauplii As A Food Source
 By Frank Marini, Ph.D.
-advancedaquarist.com/2002/12/breeder
+http://www.advancedaquarist.com/2002/12/breeder
 
 2. Breeder's Net : Amazing Artemia!
 By Suzy Applegarth
-advancedaquarist.com/2008/3/breeder
+http://www.advancedaquarist.com/2008/3/breeder
 
 If you are interested in breeding marine fish, I highly suggest checking out the Marine Breeding Initiative at mbisite.org/
 
